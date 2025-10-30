@@ -38,5 +38,5 @@ Submitted by **Rupa Mane**
 For the role of **Junior Data Scientist - Trader Behavior Insights**
 
 Contact:  
-rupa.mane@example.com  
+manerupa2002@gmail.com  
 Solapur, Maharashtra, India
